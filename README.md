@@ -11,9 +11,9 @@ Squad e Conquistas
   
 6º Etapa Local 2017.1 :balloon::balloon::balloon::balloon::balloon: 
 
-5º Etapa Local 2017.2 :balloon::balloon::balloon:
+5º Etapa Local 2017.2 :balloon::balloon::balloon::balloon:
 
-11º Etapa Regional :balloon::balloon::balloon::balloon:
+11º Etapa Regional :balloon::balloon::balloon:
 
 
 ### loopTree (2018)
