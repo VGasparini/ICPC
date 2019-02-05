@@ -25,8 +25,6 @@ Squad e Conquistas
 
 4º Esfera Local da Maratona Mineira :balloon::balloon::balloon::balloon:
 
-6º Etapa Local 2018.2 :balloon::balloon::balloon:
+3º Etapa Regional Brasileira :balloon::balloon::balloon:
 
-3º Etapa Regional :balloon::balloon::balloon:
-
-:balloon: O BALÃO MAIS RÁPIDO DO BRASIL! 
+:balloon: EM 2018 FOI O BALÃO MAIS RÁPIDO DO BRASIL! 
