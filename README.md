@@ -28,3 +28,14 @@ Squad e Conquistas
 3º Etapa Regional Brasileira :balloon::balloon::balloon:
 
 :balloon: EM 2018 FOI O BALÃO MAIS RÁPIDO DO BRASIL! 
+
+### loopTree (2019)
+  - Vinicius Gasparini
+  - Filipe Ramos
+  - Filipe Elias Cattoni
+  
+1º Etapa Local 2019.1 :balloon::balloon::balloon::balloon::balloon::balloon::balloon:
+
+2º Esfera Local da Maratona Mineira :balloon::balloon::balloon::balloon::balloon:
+
+1º Etapa Local 2012.2 :balloon::balloon::balloon::balloon::balloon::balloon:
