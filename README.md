@@ -50,8 +50,8 @@ Squad e Conquistas
 - Filipe Marchi Ramos
 - Filipe Weiss
 
-1º da sede Etapa Sub-Regional Maratona SBC (6):balloon::balloon::balloon::balloon::balloon::balloon:
+1º da sede Etapa Sub-Regional Maratona SBC (6):balloon::balloon::balloon::balloon::balloon::balloon:  
 :balloon: Melhor time da região Sul
 
-32º Nacional Maratona ICPC (5):balloon::balloon::balloon::balloon::balloon:
+32º Nacional Maratona ICPC (5):balloon::balloon::balloon::balloon::balloon:  
 :balloon: Campeão Sul-brasileiro
